@@ -1,1 +1,0 @@
-<!-- # boil water,then add tea leaves,boil it for some time until water becomes blackish,then ad milk and sugar,then boil it for some time till it gets fully boiled, then serve it in cups. -->
